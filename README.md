@@ -1,6 +1,9 @@
 ## Verdadero o falso
 
 [] Themyscera mencionada en la película también forma parte en la realidad en la *mitología griega*
+[] El lazo de Hestia era un arma para decir la verdad que existión también en la *mitologia griega*
+[] Ares igual que en el cómic era el dios de la gerra en la *mitología griega*
+[] Hefesto que fabricó el lazo de la verdad era también el dios de la forja y fuego en la *mitología griega*
 
 # Las amazonas
 
