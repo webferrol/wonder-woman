@@ -11,4 +11,7 @@
 
 Fue mencionada por **Heródoto**​ como **capital del reino de las amazonas** y por **Pausanias**, quien relata que, cuando Heracles estaba sitiándola, incapaz de conquistarla, la amazona Antíope se enamoró de Teseo
 
-- 
+
+--- 
+
+- Hefesto forjó el Lazo de la Verdad o Lazo de Hestia
