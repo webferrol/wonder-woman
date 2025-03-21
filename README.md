@@ -5,6 +5,13 @@
 - [] Ares igual que en el cómic era el dios de la gerra en la *mitología griega*
 - [] Hefesto que fabricó el lazo de la verdad era también el dios de la forja y fuego en la *mitología griega*
 
+# Hippolita
+
+- Etimología
+- Quién eran sus padres
+- Qué hermanas tenía
+- Qué regalo le hizo Hippólita a Heracles
+
 # Las amazonas
 
 <p>El pueblo amazónico fundó la nación de <a href="https://es.wikipedia.org/wiki/Temiscira_(c%C3%B3mic)" title="Temiscira (cómic)">Themyscira</a> (Θεμίσκυρα), adoptando políticas aislacionistas, para protegerse contra el patriarcado. Durante siglos, las mujeres prosperaron en la seguridad y la protección, aparte de lo que percibieron como un mundo hostil, dominado por los hombres.
