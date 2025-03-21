@@ -1,2 +1,4 @@
-# wonder-woman
-Cultura clásica: Worder Woman y las amazonas
+# Las amazonas
+
+<p>El pueblo amazónico fundó la nación de <a href="/wiki/Temiscira_(c%C3%B3mic)" title="Temiscira (cómic)">Themyscira</a>, adoptando políticas aislacionistas, para protegerse contra el patriarcado. Durante siglos, las mujeres prosperaron en la seguridad y la protección, aparte de lo que percibieron como un mundo hostil, dominado por los hombres. Las circunstancias que involucraron la llegada inesperada de <a href="/wiki/Steve_Trevor" title="Steve Trevor">Steve Trevor</a> obligaron a revelar su existencia al mundo moderno.<sup id="cite_ref-1" class="reference separada"><a href="#cite_note-1"><span class="corchete-llamada">[</span>1<span class="corchete-llamada">]</span></a></sup>​<sup id="cite_ref-2" class="reference separada"><a href="#cite_note-2"><span class="corchete-llamada">[</span>2<span class="corchete-llamada">]</span></a></sup>​
+</p>
